@@ -8,3 +8,4 @@ Bigger window ≠ solved attention
 
 Find - Evaluate - Execute
 
+A.R.I.A
